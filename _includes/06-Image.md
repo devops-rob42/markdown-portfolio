@@ -1,1 +1,1 @@
-![Image of an Ice blue Mini Cooper S from 2019](https://media-dmg.assets-cdk.com/websites/content/mini-assael//57734de545e04a35b15aac677bdb6690_2048x571.jpeg)
+![Full CF r33 from DSportmag](https://dsportmag.com/wp-content/uploads/2019/09/207-Feat-CarbonR33-003-FrontSide.jpg)
