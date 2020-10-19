@@ -1,1 +1,1 @@
-![Image of a Veilside R33 GTR](https://64.media.tumblr.com/326d3f2cff55f2a19f162c8e17ef27df/tumblr_popl7dNtVc1sjl1yz_540.jpg)
+![Image of an Ice blue Mini Cooper S from 2019](https://media-dmg.assets-cdk.com/websites/content/mini-assael//57734de545e04a35b15aac677bdb6690_2048x571.jpeg)
