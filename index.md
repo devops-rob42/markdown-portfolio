@@ -22,4 +22,4 @@ layout: default
 
 <br>
 
-{% include 07-Image.md %}
+{% include 06-Image.md %}
